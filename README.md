@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Saarah Francis
 - 👀 I’m interested in International Relations career
 - 🌱 I’m currently Undergraduate student at Pennsylvania State University
-- 💞️ I’m looking to collaborate on forein and global services
+- 💞️ I’m looking to collaborate on foreign and global services
 - 📫 How to reach me at my email saarahibntalal19@gmail.com
 
 <!---
